@@ -23,7 +23,7 @@ What drives me forward is the potential to make a positive impact through techno
 As I continue to grow both personally and professionally, I am eager to take on new challenges, push boundaries, and contribute to innovative projects. With a strong foundation in Android and Web development, coupled with a hunger for knowledge, I am ready to adapt to emerging technologies and contribute to the ever-evolving landscape of the digital world.
 
 ✉️ Let's Connect:
-If you are seeking a developer who has not only weathered hurdles but has also emerged stronger and more determined, I would be thrilled to connect with you. Feel free to reach out to me via email at [Your Email] or connect with me on LinkedIn at [Your LinkedIn Profile Link]. Let's collaborate and create remarkable solutions together!
+If you are seeking a developer who has not only weathered hurdles but has also emerged stronger and more determined, I would be thrilled to connect with you. Feel free to reach out to me via email at pavankumarkanni@gmail.com or connect with me on WhatsApp at https://wa.me/+918217738667. Let's collaborate and create remarkable solutions together!
 
 Thank you for taking the time to delve into my journey. Together, let's shape the future through innovation, resilience, and the unwavering pursuit of excellence.
 
