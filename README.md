@@ -2,7 +2,8 @@
 
 I'm Pavankumar Hegde, a paasionate Androoid App Developer. Seeking to handle responsibilities and challenging assignments to harness my technical and analytical skills.
 
-CAREER RECITAL 
+
+**CAREER RECITAL **
 
 A qualified technocrat and a seasoned IT professional offering 1 year of experience in designing, developing, implementing, testing and support Software applications. 
 
