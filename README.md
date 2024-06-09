@@ -7,7 +7,11 @@ CAREER RECITAL
 A qualified technocrat and a seasoned IT professional offering 1 year of experience in designing, developing, implementing, testing and support Software applications. 
 
 	Demonstrated ability in end-to-end development of Software Applications 
+
 	Comprehensive knowledge of the entire Software Development Life Cycle 
+
 	Thorough understanding of various phases like Requirements, Analysis, Design, Development, Implementation, maintenance and Testing 
+
 	Deep understanding of technology with focus on delivering business solutions
+
 	Adept at maintaining focus on achieving bottom-line results while formulating and implementing advanced business solutions to meet a diversity of needs
